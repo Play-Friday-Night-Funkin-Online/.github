@@ -2,6 +2,8 @@
 
 Are you ready to dive into the **crazy**, **hyper** world of **Friday Night Funkin Online**? This **legendary** rhythm game combines **intense** music battles with **unstoppable** challenges, offering players an unforgettable **arcade** experience right from their browser!
 
+## <a href="https://1kb.link/6gt015">👉 Play Friday Night Funkin Unblocked NOW 👈</a>
+
 ### What is Friday Night Funkin Online?
 
 **Friday Night Funkin Online** is a **multiplayer**, **3D-inspired** rhythm game where players test their skills in **epic** music duels. Join the **fearless** hero as they face off against various opponents in a **rapid**, **blazing** quest to win hearts and prove their rhythm mastery.
